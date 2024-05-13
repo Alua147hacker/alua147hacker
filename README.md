@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Alua147hacker
 - 👀 I’m interested in 💔
 - 🌱 I’m currently learning SYCO THINGS 
-- 💞️ I’m looking to collaborate on ICE GIRL
+- 💞️ I’m looking to collaborate with ICE GIRL
 - 📫 How to reach me 👀 I WANT ALSO
 
 <!---
